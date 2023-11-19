@@ -1,4 +1,4 @@
-# Stephenmuhindi
+# Stephen muhindi
 
 ## Digital Craftsman
 
